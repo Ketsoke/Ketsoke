@@ -1,4 +1,4 @@
-# Somethings about me
+# Some things about me 💖
 - 👋 Hi, I’m @Ketsoke
 - 🌚 I’m new to programming.
 - 👀 I’m interested in learning new things.
