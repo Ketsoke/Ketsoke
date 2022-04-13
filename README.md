@@ -4,11 +4,11 @@
 - 🌱 I’m currently learning about computers.
 - 🤗 I’m working on improving myself.
 
-** Let's get cracking 💯 **
+**Let's get cracking 💯**
 
 > 🗿
 
-## Sigma grind set _skeet go brrr... _  👌🤌
+## Sigma grind set _skeet go brrr..._  👌🤌
 <!---
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
