@@ -1,6 +1,6 @@
 # Some things about me 💖
 - 👋 Hi, I’m @Ketsoke
-- 🌚 I’m new to programming.
+- 🌚 I’m new to computers and programming.
 - 👀 I’m interested in learning new things.
 - 🌱 I’m currently learning about computers.
 - 🤗 I’m working on improving myself.
