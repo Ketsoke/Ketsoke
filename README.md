@@ -3,10 +3,13 @@
 - 👀 I’m interested in learning new things.
 - 🌱 I’m currently learning about computers.
 - 🤗 I’m working on improving myself.
-- 💯
-<!--- 
+
+/> Let's get cracking 💯
+
+## Sigma grind set skeet go brrr...  👌🤌
+<!---
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ... 
+- 📫 How to reach me ...
 --->
 
 <!---
