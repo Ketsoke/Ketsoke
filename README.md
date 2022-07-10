@@ -5,6 +5,15 @@
 - 🌱 I’m currently learning about computers.
 - 🤗 I’m working on improving myself.
 
+# I love to:
+    * Talk about tech
+    * Learn about new cool stuff
+    * Experience new things
+    * Eat some crazy food
+    * Have a great time
+    * Travel to new destinations
+    * Explore places and ideas 
+
 ## Sigma grind set _skeet go brrr..._  👌🤌
 
 **Let's get cracking 💯**
