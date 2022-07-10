@@ -6,8 +6,8 @@
 - 🤗 I’m working on improving myself.
 
 # I love to:
-    * Talk about tech
-    * Learn about new cool stuff
+    * Talk Tech and Trends
+    * Learn about cool stuffs
     * Experience new things
     * Eat some crazy food
     * Have a great time
