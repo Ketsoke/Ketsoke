@@ -7,13 +7,18 @@
 - 🍎 And apples, also sometimes peaches. 🍑
 
 # I love to:
-    * Talk Tech and Trends
-    * Learn about cool stuffs
-    * Experience new things
-    * Eat some crazy food
-    * Have a great time
-    * Travel to new destinations
-    * Explore places and ideas 
+    * Talk Trash and Trends
+    * Tread new grounds
+    * Help Myself
+    * Learn about Cool Stuffs
+    * Experience new Things
+    * Eat some Crazy Food
+    * Have a Great Time
+    * Distract my Unproductive Buttcheeks
+    * Procrastinate in my Wild Imagination
+    * Travel to new Destinations
+    * Explore Places and Ideas
+    * Lust over my Fantasies
 
 # Where to find me:
   * Here  👋
@@ -21,7 +26,7 @@
   * [Instagram](https://www.instagram.com/ketsoke/)  📷
   * [Email](mailto:subinshrestha09@outlook.com)  📧
 
-## Sigma grind set _skeet go brrr..._  👌🤌
+## Sigma grind-set _skeet go brrr..._  👌🤌
 
 **Let's get cracking 💯**
 
