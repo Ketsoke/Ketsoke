@@ -4,6 +4,7 @@
 - 👀 I’m interested in learning new things.
 - 🌱 I’m currently learning about computers.
 - 🤗 I’m working on improving myself.
+- 🍎 And apples, also sometimes peaches. 🍑
 
 # I love to:
     * Talk Tech and Trends
@@ -13,6 +14,12 @@
     * Have a great time
     * Travel to new destinations
     * Explore places and ideas 
+
+# Where to find me:
+  * Here  👋
+  * [Twitter](https://twitter.com/ketsoke)  🐦
+  * [Instagram](https://www.instagram.com/ketsoke/)  📷
+  * [Email](mailto:subinshrestha09@outlook.com)  📧
 
 ## Sigma grind set _skeet go brrr..._  👌🤌
 
