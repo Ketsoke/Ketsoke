@@ -1,5 +1,5 @@
 # Some things about me 💖
-- 👋 Hi, I’m @Ketsoke
+- 👋 Hi, I’m [@Ketsoke](https://github.com/Ketsoke)
 - 🌚 I’m new to computers and programming.
 - 👀 I’m interested in learning new things.
 - 🌱 I’m currently learning about computers.
@@ -24,9 +24,9 @@
 
 # Where to find me:
   * Here  👋
-  * [Twitter](https://twitter.com/ketsoke)  🐦
-  * [Instagram](https://www.instagram.com/ketsoke/)  📷
-  * [Email](mailto:subinshrestha09@outlook.com)  📧
+  * 🐦 [Twitter](https://twitter.com/ketsoke)
+  * 📷 [Instagram](https://www.instagram.com/ketsoke/)
+  * 📧 [Email](mailto:subinshrestha09@outlook.com)
 
 ## Sigma grind-set _skeet go brrr..._  👌🤌
 
