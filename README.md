@@ -27,6 +27,7 @@
   * 🐦 [Twitter](https://twitter.com/ketsoke)
   * 📷 [Instagram](https://www.instagram.com/ketsoke/)
   * 📧 [Email](mailto:subinshrestha09@outlook.com)
+  * 🔗 [LinkedIn](https://www.linkedin.com/in/shrestha-subin/)
 
 ## Sigma grind-set _skeet go brrr..._  👌🤌
 
