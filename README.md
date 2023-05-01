@@ -9,16 +9,18 @@
 # I love to:
     * Talk Trash and Trends
     * Tread new grounds
-    * Help Myself
     * Learn about Cool Stuffs
     * Experience new Things
-    * Eat some Crazy Food
-    * Have a Great Time
-    * Distract my Unproductive Buttcheeks
-    * Procrastinate in my Wild Imagination
-    * Travel to new Destinations
     * Explore Places and Ideas
-    * Lust over my Fantasies
+    * Have a Great Time
+    * Eat some Good Food
+<!--
+[//]: # * Help Myself
+[//]: # * Distract my Unproductive Buttcheeks
+[//]: # * Procrastinate in my Wild Imagination
+[//]: # * Travel to new Destinations     
+[//]: # * Lust over my Fantasies
+-->
 
 # Where to find me:
   * Here  👋
