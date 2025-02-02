@@ -28,6 +28,8 @@
   * 📷 [Instagram](https://www.instagram.com/_subin_shrestha_/)
   * 📧 [Email](mailto:subinshrestha09@outlook.com)
   * 🔗 [LinkedIn](https://www.linkedin.com/in/shrestha-subin/)
+  * 🌐 [Website](https://shrestha-subin.com.np/)
+  * 📰 [Blog](https://shrestha-subin.com.np/blog)
 
 ## Sigma grind-set _skeet go brrr..._  👌🤌
 
