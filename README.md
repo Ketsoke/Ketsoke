@@ -4,7 +4,7 @@
 - 👀 I’m interested in learning new things.
 - 🌱 I’m currently learning about computers.
 - 🤗 I’m working on improving myself.
-- 🍎 And apples, also sometimes peaches. 🍑
+- 🍎 Apples, and Peaches. 🍑
 
 # I love to:
     * Talk Trash and Trends
