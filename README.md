@@ -25,7 +25,7 @@
 # Where to find me:
   * Here  👋
   * 🐦 [Twitter](https://twitter.com/ketsoke)
-  * 📷 [Instagram](https://www.instagram.com/ketsoke/)
+  * 📷 [Instagram](https://www.instagram.com/_subin_shrestha_/)
   * 📧 [Email](mailto:subinshrestha09@outlook.com)
   * 🔗 [LinkedIn](https://www.linkedin.com/in/shrestha-subin/)
 
